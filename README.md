@@ -9,4 +9,3 @@ diseñar cosas mucho más allá de los límites de lo corriente.
 También colecciono cubos de Rubik y me gusta el anime. Me gusta coleccionar stickers (En Whatsapp y en la vida real)
 Tengo dos perras y un gato 
 
-![Raul](IMG_20200410_013028151.jpg)
