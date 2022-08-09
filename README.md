@@ -1,4 +1,4 @@
-###Sofía Morales
+### Sofía Morales
 
 ¡Buenas! Mi nombre es Sofía (Chof, en general).
 Mi pronombre es Ella/she, tengo 22 años y después de un giro de 180 grados en mi vida decidí dedicarme a la programación.
